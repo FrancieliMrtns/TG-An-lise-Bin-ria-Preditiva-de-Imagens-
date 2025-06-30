@@ -1,0 +1,1 @@
+# TG-An-lise-Bin-ria-Preditiva-de-Imagens-
